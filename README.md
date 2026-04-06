@@ -1,1 +1,2 @@
-<img src="[https://github.com/user-attachments/assets/c6380251-e8f2-4b1f-8c4e-c246cf794269](https://pbs.twimg.com/media/HFDIvpTaIAAbu4f?format=jpg&name=medium)" width=50% height=50%>
+<img src="https://github.com/user-attachments/assets/ed8e2f4d-11a6-47bb-afd6-fb10b8f0d740" width=50% height=50%>
+
